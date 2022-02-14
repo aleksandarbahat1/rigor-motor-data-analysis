@@ -1,1 +1,0 @@
-# Rigor-Motor-Data-Analysis
